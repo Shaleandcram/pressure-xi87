@@ -1,4 +1,4 @@
-#  
+#  Experience pressure like never before with stealth pressure Scripts, the #1 Script. Includes auto-upgrade and undetectable for unbeatable performance.
 
 
 
